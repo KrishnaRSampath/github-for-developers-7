@@ -8,4 +8,6 @@
 
 **Favorite Foods:** Pizza, Idli sambar
 
+**Favorite Color:** Blue
+
 **Hobbies:** Singing, Board games, Reading
