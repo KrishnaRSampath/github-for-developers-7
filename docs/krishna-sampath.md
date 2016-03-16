@@ -1,6 +1,6 @@
 ### Bio
 
-**Name:** Krishna Sampath
+**Name:** Krishna R. Sampath
 
 **Hometown:** Sunnyvale, CA
 
